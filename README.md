@@ -10,7 +10,7 @@
 - **Plataformas:** YouTube, Twitch, Instagram, tiktok, trovo, facebook.
 
 ## Fuentes
-- [Periódico El Deber - “CyberJAAM: la nueva sensación internacional boliviana”]
+- [Periódico El Deber - “CyberJAAM: La posible nueva sensación internacional boliviana en ROBLOX?”] (2022)
 - [Canal de Youtube](https://www.youtube.com/cyberjaam)
 
 ## Doxeo por parte de hackers en 2022 (Verificado)
